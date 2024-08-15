@@ -69,7 +69,7 @@ Q: What is your favourite game?
 A: A Dance of Fire and Ice, I have over 250 hours on it on Steam for a reason.
 
 Q: Do you like horror games?  
-A: It's less than I dislike horror games and more that I'm strict with what horror games I DO like. I'm typically fine with psychological horror, because those tend to have less jumpscares, which I don't like. I'm also tolerant of blood, gore, and somewhat disturbing imagery. Some certain levels of disturbing imagery may scar me imagery and give me nightmares the next night, though.  
+A: It's less than I dislike horror games and more that I'm strict with what horror games I DO like. I'm typically fine with psychological horror, because those tend to have less jumpscares, which I don't like. I'm also tolerant of blood, gore, and somewhat disturbing imagery. Some certain levels of disturbing imagery may scare me and give me nightmares the next night, though.  
 
 Q: What's your favourite soda?  
 A: Fanta Fruit Twist, no hesitance.  
